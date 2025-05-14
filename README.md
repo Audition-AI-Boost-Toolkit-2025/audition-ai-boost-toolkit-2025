@@ -63,7 +63,7 @@
 ### 📷 Visuals
 
 **Audition AI Boost Toolkit Interface**  
-![Audition Interface](https://www.elegantthemes.com/blog/wp-content/uploads/2024/03/A-screenshot-of-Adobe-Auditions-user-interface.jpg)  
+![Audition Interface](https://www.diyphotography.net/wp-content/uploads/2024/01/premiere-pro-audio-updates.jpg)  
 *Audio interface with AI plugins.*  
 
 
